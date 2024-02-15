@@ -2,5 +2,5 @@
 ## Members
 ### 👉🏻 Hrishikesh Kalekinge
 ### 👉🏻 Piyush Daulatkar
-### 👉🏻 Ankit Rahangade
+### 👉🏻 Ankit Rahangdale
 ### 👉🏻 Adwait Deshmukh
